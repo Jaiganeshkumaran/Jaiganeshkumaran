@@ -1,4 +1,4 @@
-Just trying to do whot I can, with the nollej I hav ŕn'd, to make the wŕld a litl betr eech day :sunglasses:
+Just trying to do whot I can, with the nollej I hav ŕnd, to make the wŕld a litl betr eech day :sunglasses:
 
 Advocat of [English spelling reform](https://github.com/JUV-Studios/Nue-Clear-English) and [Tamil langwej reform](https://github.com/JaiganeshKumaran/Naveena-Tamil)
 
