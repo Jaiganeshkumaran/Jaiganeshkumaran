@@ -1,4 +1,4 @@
-Just trying tu du whot I can, with the knólage I hav ern'd, tu make the wurld a littel better eech day :sunglasses:
+Just trying tu du whot I can, with the nólage I hav ern'd, tu make the wurld a littel better eech day :sunglasses:
 
 Advocat of [English spelling reform](https://github.com/JaiganeshKumaran/Nue-Clear-English) and [Tamil lángwage reform](https://github.com/JaiganeshKumaran/Naveena-Tamil)
 
